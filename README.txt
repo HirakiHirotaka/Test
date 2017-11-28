@@ -1,1 +1,1 @@
-hogehoge
+まじ卍
