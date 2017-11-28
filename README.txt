@@ -1,2 +1,1 @@
-hogehoge
-fooooooooooooooo
+まじ卍
