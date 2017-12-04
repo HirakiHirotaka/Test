@@ -1,1 +1,1 @@
-まじ卍LINE
+まじ卍LINE卍LINE
