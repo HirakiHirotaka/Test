@@ -1,3 +1,1 @@
-まじ卍
-aaaaaaaaaa
-
+まじ卍LINE
